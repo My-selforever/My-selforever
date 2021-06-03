@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on ntm
-- 📫 How to reach me Discord
+- 📫 How to reach me Discord at 𝐹𝓇☯𝓈𝓉𝐵𝓊𝓇𝓃#6296
 
 <!---
 My-selforever/My-selforever is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
